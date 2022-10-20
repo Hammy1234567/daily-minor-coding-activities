@@ -1,0 +1,1 @@
+# daily-minor-coding-activities
